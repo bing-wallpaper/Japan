@@ -1,3 +1,3 @@
 # Bing Wallpaper
 
-🌻 Daily Backup
+🌻 Daily Backup for bing wallpaper 
